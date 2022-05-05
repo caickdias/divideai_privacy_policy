@@ -1,0 +1,1 @@
+# divideai_privacy_policy
